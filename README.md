@@ -1,0 +1,1 @@
+[reference](https://zenn.dev/nananaoto/articles/34424c93d61b62)
